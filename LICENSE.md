@@ -1,4 +1,4 @@
-
+anime card collection advanced Scripts offers the most advanced anime card collection Script, with infinite resources and esp. Perfect for dominating
 
 
 
